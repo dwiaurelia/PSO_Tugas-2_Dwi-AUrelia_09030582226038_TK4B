@@ -1,1 +1,0 @@
-# PSO_Tugas-2_Dwi-AUrelia_09030582226038_TK4B
